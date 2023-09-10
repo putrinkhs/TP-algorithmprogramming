@@ -1,2 +1,1 @@
-# TP-algorithmprogramming
-Tugas Personal Algorithm and Programming
+2702346746 - Putri Nur Khasanah
